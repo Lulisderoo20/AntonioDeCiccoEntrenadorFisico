@@ -14,3 +14,6 @@ ADMINISTRAR INSTAGRAM, UNIDO A FB Y YOUTUBE. MAIL NUEVO
 ADMINISTRAR MAILS, HORARIOS, PRECIOS. LISTO 
 SESION DE FOTOS MENSUALES.
 AHORROS.
+comprar pesas. ejercicios para mujeres, equipo para ejercicios femeninos
+marketing
+community manager.
